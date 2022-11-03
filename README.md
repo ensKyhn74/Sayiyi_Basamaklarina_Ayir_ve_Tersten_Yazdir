@@ -1,0 +1,1 @@
+# Sayiyi_Basamaklarina_Ayir_ve_Tersten_Yazdir
